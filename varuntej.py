@@ -1,0 +1,1 @@
+varun tej is the son of naga babu and cousin of ram charan and SDT.
